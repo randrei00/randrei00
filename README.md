@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Rares-Andrei
+- 👀 I’m interested in Graphic design & web development
+- 📫 Reach me at raresandreipanait2000@gmail.com
